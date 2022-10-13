@@ -1,0 +1,2 @@
+# Torsdagsopgaver6
+ 
